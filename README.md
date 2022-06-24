@@ -1,5 +1,4 @@
-# Business-Accounting
-Business Ethics
+# Business Ethics
 # Definition Of Business Ethics
 Business ethics is the look at of suitable commercial enterprise guidelines and practices concerning probably debatable topics which include company governance, insider trading, bribery, discrimination, company social responsibility, and fiduciary responsibilities. The regulation frequently courses commercial enterprise ethics, however at different instances commercial enterprise ethics offer a fundamental guiding principle that companies can select to comply with to benefit public approval.
 But good business ethics assures customers, employees and other stakeholders that a company is following the rules and doing the right thing.  If other businesses don't trust you, they may buy the product elsewhere or offer bargains to other buyers.  Business ethics is essential for good financial planning and positive income.
